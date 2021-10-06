@@ -18,3 +18,11 @@
 - 'Real world isn't a place, it's an excuse, a justification for not trying.'
 - These people usually try to drag you down and make you belive that this thing might not work in real world.
 
+### Learning from Mistakes is Overrated
+- If others can't make it, this doesn't imply, you can't make it. If 9 out of 10 businesses fail, this doesn't mean your business will lie in those 9s.
+- "Other people's failure are other people's failure, and not yours."
+- "You don't need to learn from your mistakes". Mistakes tell you what *'not'* to do, the next time. You still don't know what *'you should do next'*.
+- Rather, learning from your successes what matters, because, then you know, what worked and then the next time it can be applied again, probably, even in a better way.
+- *'Failure is not a prequisite for success'*
+- Successful people are more likely to succeed again. 
+- *What worked is more important than what failed.*
