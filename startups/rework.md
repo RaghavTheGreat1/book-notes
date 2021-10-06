@@ -26,3 +26,11 @@
 - *'Failure is not a prequisite for success'*
 - Successful people are more likely to succeed again. 
 - *What worked is more important than what failed.*
+
+### Planning is Guessing
+- Big long term plans are just **SHIT** and has high probability that you won't see it get implemented.
+- *'Writing a plan makes you feel in control of things you actually can't control.'*
+- Very short term plans are memorizable and implementable. Plan for a week or so, not for the whole year.
+- Also, plans made based on history is senseless because you are working in the present, and not in future. 
+- It makes no sense to plan for something that you're not doing in reality.
+- 'Working w/o plans is scary, but, blindly following a plan that has no relationship with reality, is even scariest'.
